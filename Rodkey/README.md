@@ -9,4 +9,3 @@ or explore his legacy feature in the Spokesman-Review. 
 https://www.spokesman.com/stories/2012/jan/26/education-of-a-lifetime/
 
 John graduated from Whitworth College with his BA degree in Recreational Leadership in 1947 and a BA in Psych / Soc / Education in 1948. He later received his Master's Degree in Administration in 1958. He remained a loyal and active alum of Whitworth University. After student teaching at North Central High, he was hired to teach there after his college years. He taught from 1948 - '57, then served as Vice Principal of Shadle Park for the two opening-years, '57-'59. He then came back to NC as principal from '59-79. 
-<img width="8635" height="80" alt="image" src="https://github.com/user-attachments/assets/3d5d4dd8-339b-4e3c-bf27-e82d47c71f45" />
