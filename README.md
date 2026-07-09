@@ -1,8 +1,11 @@
 Preparing materials for the 50th anniversary celebrations of the Class of 1976 at North Central High School in Spokane, Washington. 
 
 Particular attention will be paid to the years which we were in attendance there together as follows:
+
 1974: https://archive.org/details/SPLYearbooksNorthCentral1974
+
 1975: https://archive.org/details/SPLYearbooksNorthCentral1975
+
 1976: https://archive.org/details/SPLYearbooksNorthCentral1974
 
 Each of a set of 20 teachers are remembered
