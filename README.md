@@ -48,4 +48,3 @@ Theisen, Orval N. P.
 Weir, Mike
 
 
-<img width="315" height="673" alt="image" src="https://github.com/user-attachments/assets/fef8e32c-45cc-4f53-b6aa-c93d103360b8" />
