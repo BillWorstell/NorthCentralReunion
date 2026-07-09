@@ -5,27 +5,47 @@ Particular attention will be paid to the years which we were in attendance there
 1975: https://archive.org/details/SPLYearbooksNorthCentral1975
 1976: https://archive.org/details/SPLYearbooksNorthCentral1974
 
-Each of a set of 19 teachers are remembered
+Each of a set of 20 teachers are remembered
 
-John P. Rodkey
-Burrill Dean Exley
-Raymond Simonson
-Orval N. P. Theisen
-William Nye
-Norman W. Erickson
-Laura Lee Mohn Briscoe
-Michael W. Caldwell
-Dorothy Murray
-Jerry Hopkins
-Mike Caldwell
-Joe Schauble
-Yvonne Carter
-George Chalich
-Lynette McGarry
-John Luppert
-Gerry Hughes
-Dean Rieken
-Mary Haugen
-Mike Weir
-Donald Makiska
+Briscoe, Laura Lee Mohn
+
+Caldwell, Michael W.
+
+Carter (Edmonds), Yvonne
+
+Chalich, George
+
+Erickson, Norman W. 
+
+Exley, Burrill Dean
+
+Haugen, Mary
+
+Hopkins, Jerry
+
+Hughes, Gerry
+
+Luppert, John
+
+Makiska, Donald
+
+McGarry, Lynette
+
+Murray, Dorothy
+
+Nye, William
+
+Rieken, Dean
+
+Rodkey, John P.
+
+Schauble, Joe
+
+Simonson, Raymond
+
+Theisen, Orval N. P.
+
+Weir, Mike
+
+
 <img width="315" height="673" alt="image" src="https://github.com/user-attachments/assets/fef8e32c-45cc-4f53-b6aa-c93d103360b8" />
